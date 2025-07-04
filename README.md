@@ -17,4 +17,4 @@
 
 综上所述，优质的日本AV免费资源网站应具备内容丰富、更新及时、分类清晰、播放流畅、安全无广告和良好用户体验等特点。只有满足这些条件，才能真正满足广大用户对免费高质量日本AV的需求，赢得用户和搜索引擎的青睐。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt2）</span>
